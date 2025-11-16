@@ -8,8 +8,6 @@
 
 🛠 I Built real-world projects<br>
 
-🏢 Planning a summer internship in Tunisia<br>
-
 🚀 Preparing for my final year project (PFE) next year<br>
 
 
