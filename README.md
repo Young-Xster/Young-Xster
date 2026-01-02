@@ -8,7 +8,7 @@
 
 🛠 I Built real-world projects<br>
 
-🚀 Preparing for my final year project (PFE) next year<br>
+🚀 Currently working on my final year project (PFE)<br
 
 
 
